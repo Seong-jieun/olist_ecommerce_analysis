@@ -42,4 +42,4 @@
 |	| |Folium|
 
 
-[자세한 내용보기](https://cosmic-tourmaline-f3b.notion.site/1b541251025348c1b267eae5486b5ce0?pvs=4)
+[👉자세한 내용 보러가기](https://cosmic-tourmaline-f3b.notion.site/1b541251025348c1b267eae5486b5ce0?pvs=4)
